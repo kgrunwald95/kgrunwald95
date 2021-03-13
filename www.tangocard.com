@@ -1,0 +1,1 @@
+https://www.tangocard.com/terms-of-service
